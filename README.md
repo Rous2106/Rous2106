@@ -1,5 +1,6 @@
+![ROCIO GAMBOY](https://github.com/Rous2106/Rous2106/assets/126781043/d55ba69c-bfad-4242-88d4-07709c8893ef)
 
-![ROCIO GAMBOY - copia - copia](https://github.com/Rous2106/Rous2106/assets/126781043/67f39e31-1755-4241-9eb5-3ebfb46ce2f8)
+
 
 
 
