@@ -1,4 +1,6 @@
-![ROCIO GAMBOY - copia - copia](https://github.com/Rous2106/Rous2106/assets/126781043/66f794ec-9f54-4fe0-85cf-e4b1765cafac)
+
+![ROCIO GAMBOY - copia - copia](https://github.com/Rous2106/Rous2106/assets/126781043/67f39e31-1755-4241-9eb5-3ebfb46ce2f8)
+
 
 
 <h1 align="center">Hi 👋, I'm Rocio Gamboy</h1>
